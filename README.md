@@ -1,6 +1,6 @@
 ## Olá, eu sou DJ ALEX MASSAFERA✨️
 
-https://allmylinks.com
+https://allmylinks.com/djalexmassafera
 
 
 
